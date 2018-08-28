@@ -4,5 +4,5 @@
 
 * 🇺🇸United States: +12155154732
 * 🇨🇦 Canada: +1
-* 🇬🇧United Kingdom: 
+* 🇬🇧United Kingdom: +
 * 🇩🇪Germany: 
