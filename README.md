@@ -4,6 +4,4 @@
 
 * 🇺🇸United States: +12155154732
 * 🇨🇦 Canada: +16476969270
-* 🇬🇧United Kingdom: +
-* 🇩🇪Germany
-   
+* 🇬🇧United Kingdom: +447479277245
